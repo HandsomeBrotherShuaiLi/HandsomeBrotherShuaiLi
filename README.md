@@ -5,5 +5,5 @@
 ## Publications
 ## Projects
 ## Skills
-## Concact Me  
-shuai.li@shopee.com
+## Concact
+shuai.li@shopee.com or li.shuai@wustl.edu
